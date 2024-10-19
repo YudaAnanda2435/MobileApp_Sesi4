@@ -1,6 +1,5 @@
 ![Screenshot 2024-10-19 222204](https://github.com/user-attachments/assets/0e7281da-a1a3-4bd6-9815-0395c13cde75)
 ![Screenshot 2024-10-19 220957](https://github.com/user-attachments/assets/39aab763-7668-4a05-8f24-8d12ce7e9a66)
 ![Screenshot 2024-10-19 221042](https://github.com/user-attachments/assets/d9242e8f-7877-43f5-a2ae-3eb20e94d077)
-![Screenshot 2024-10-19 220957](https://github.com/user-attachments/assets/572f5a54-bc9d-43fe-a88f-af0b91d83ea0)
 ![Screenshot 2024-10-19 220940](https://github.com/user-attachments/assets/e8f3414f-d66c-4a36-b158-0c9cc3ba63e1)
 ![Screenshot 2024-10-19 220909](https://github.com/user-attachments/assets/3c613086-e444-4330-b4b4-4b7bd0a0f05f)
